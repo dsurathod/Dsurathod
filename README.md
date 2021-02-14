@@ -3,6 +3,7 @@
 ### Socials
   - Discord: Azael#1111
   - Twitter: [@azael1337](https://twitter.com/azael1337)
+  - Ogusers: [@azaelg](https://ogusers.com/azaelg)
 
 
 ### Stats
