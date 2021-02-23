@@ -1,7 +1,7 @@
 ![profile views](https://profile-counter.glitch.me/azaelgg/count.svg)
 
 ### Socials
-  - Discord: Azael#1111
+  - Discord: x
   - Twitter: [@azael1337](https://twitter.com/azael1337)
 
 ### Stats
