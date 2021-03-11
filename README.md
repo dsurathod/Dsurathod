@@ -1,7 +1,7 @@
 ![profile views](https://profile-counter.glitch.me/azaelgg/count.svg)
 
 ### Socials
-  - Discord: x
+  - Discord: Azael#1111
   - Twitter: [@cowped](https://twitter.com/cowped)
 
 ### Stats
